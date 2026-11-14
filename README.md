@@ -1,12 +1,7 @@
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
-<p align="center">
-   Ƈυrrᥱᥒtᥣყ trყ𝚒ᥒg to sᥱᥱ how mᥲᥒყ ρᥱoρᥣᥱ 𝙸 ᥴᥲᥒ foᥣᥣow for fυᥒ...
-</p>
 
-<p align="center">
-   ʏᴏᴜ ᴅᴏɴ'ᴛ ʜᴀᴠᴇ ᴛᴏ ꜰᴏʟʟᴏᴡ ʙᴀᴄᴋ, ʙᴜᴛ ɪᴛ ɪꜱ ᴀᴘᴘʀᴇᴄɪᴀᴛᴇᴅ!
 <p align="center">
    <img width="215" height="340" src="https://file.garden/au1asPGbEpA_fc0k/Untitled339_20261113202104.png" />
 </p>
