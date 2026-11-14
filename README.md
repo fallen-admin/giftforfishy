@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-   <img width="215" height="340" src="https://file.garden/au1asPGbEpA_fc0k/Untitled339_20261113202104.png" />
+   <img width="235" height="365" src="https://file.garden/au1asPGbEpA_fc0k/Untitled339_20261113202104.png" />
 </p>
 
 <p align="center">
