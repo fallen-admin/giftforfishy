@@ -3,6 +3,10 @@
 </p>
 
 <p align="center">
+   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lobster+Two&size=40&pause=1000&color=DE2541&center=true&vCenter=true&height=60&lines=%22Fishy%22+%7C+%22Faeleen%22" alt="Typing SVG" /></a>
+</p>
+
+<p align="center">
    <img width="215" height="340" src="https://file.garden/au1asPGbEpA_fc0k/Untitled339_20261113202104.png" />
 </p>
 
